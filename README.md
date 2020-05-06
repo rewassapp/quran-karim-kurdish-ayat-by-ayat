@@ -1,0 +1,1 @@
+# quran-karim-kurdish-ayat-by-ayat
